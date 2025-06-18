@@ -1,0 +1,1 @@
+Este projeto foi desenvolvido para apresentar as relações entre o Campo e Cidade como participação no Concurso Agrinho 2025. É um projeto que deseja apresentar a importância da produção de alimentos do campo, a importância da agricultura familiar e o uso de tecnologias e manejos sustentáveis na agricultura.
